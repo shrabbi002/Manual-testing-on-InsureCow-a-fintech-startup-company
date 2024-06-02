@@ -1,0 +1,1 @@
+# Manual-testing-on-InsureCow-a-fintech-startup-company
