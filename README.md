@@ -1,0 +1,1 @@
+InsureCow is a leading provider of livestock insurance and management services, aiming to improve the resilience of marginalized, poor, and smallholder farmers in developing countries. They offer a comprehensive platform, capacity building, underwriting, and farm management software, promoting financial inclusion and asset security.
